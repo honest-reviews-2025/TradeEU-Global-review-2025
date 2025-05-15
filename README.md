@@ -18,7 +18,7 @@ It’s clear traders want answers. This review covers:
 - Pros & cons  
 - Real user feedback  
 - Risk factors  
-
+![TradeEU Global Logo](https://github.com/honest-reviews-2025/TradeEU-Global-review-2025/blob/7470fac63b109ee21d3415e6dfbe10991bbd471b/TradeEU-Global-logo.png)
 ---
 
 ## 🧩 What Is TradeEU Global?
